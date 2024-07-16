@@ -1,3 +1,5 @@
+![unixmagick_A_realistic_peacock_on_a_white_background _Zoom_in_o_b27f1fb4-356f-4fc4-881b-2124b05a768e](https://github.com/user-attachments/assets/a9cedf5f-17b1-42f3-8a70-bc65092d879f)
+
 # Do you want to avoid shitty sweet tea?
 > As a person who doesn't drink soda, I find myself defaulting to sweet tea at every restaurant, if you're like me, and you don't drink soda, or you cant, you may find yourself with few options when you go out. Our mission at shitty sweet tea is to encourage restaurants to provide higher quality sweet tea for those of us who have nothing else
 
