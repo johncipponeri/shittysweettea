@@ -3,6 +3,18 @@
 # Do you want to avoid shitty sweet tea?
 > As a person who doesn't drink soda, I find myself defaulting to sweet tea at every restaurant, if you're like me, and you don't drink soda, or you cant, you may find yourself with few options when you go out. Our mission at shitty sweet tea is to encourage restaurants to provide higher quality sweet tea for those of us who have nothing else
 
+![DISAPPOINTED](https://github.com/user-attachments/assets/03546603-842e-48ca-9272-b244af60b7df)
+
+## Outback Steakhouse 🍃🍃
+
+To the charlatans at Outback Steakhouse:
+
+> Your sweet tea is uninspired
+
+> Because of you, I will never go to Australia
+
+> I give it to tea leaves
+
 ![a_realistic_peacock_on_a_white_background _there_is__d2f19ce5-2193-41e6-9368-ba23aeff9a08](https://github.com/user-attachments/assets/ed8ce353-2fbe-4bc3-beb5-298f2d101312)
 
 ## McDonald's 🍃🍃🍃🍃
