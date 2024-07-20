@@ -5,6 +5,26 @@
 
 
 
+![gold](https://github.com/user-attachments/assets/eb69d471-81a6-4fb1-a093-00e1e73914b8)
+
+Raising Cane's 🍃🍃🍃🍃🍃
+
+Raising Cane's is the star in the nightsky that led the wise man to sweet baby Jesus.
+
+Raising Cane's set the standard which all other restaurants should strive for.
+
+> I bought a gallon of your sweet necture to take home with me.
+>
+> I sleep with the jug.
+>
+> I cuddle the jug.
+>
+> I shower with it; pouring a tiny bit on my body and giggling to my self.
+>
+> No one can ever take you from meeeeeeee 🎼🎵🎶
+
+
+
 ![DISAPPOINTED](https://github.com/user-attachments/assets/03546603-842e-48ca-9272-b244af60b7df)
 
 ## Outback Steakhouse 🍃🍃
